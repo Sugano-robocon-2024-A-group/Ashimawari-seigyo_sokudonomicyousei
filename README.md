@@ -1,0 +1,1 @@
+# Ashimawari＿seigyo_sokudonomicyousei
